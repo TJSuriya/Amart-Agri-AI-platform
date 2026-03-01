@@ -1,0 +1,1 @@
+# Amart-Agri-AI-platform
